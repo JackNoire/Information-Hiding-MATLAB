@@ -1,0 +1,1 @@
+Kumar B, Anand A, Singh S P, et al. High capacity spread-spectrum watermarking for telemedicine applications[J]. World Academy of Science, Engineering and Technology, 2011, 79: 2011.
